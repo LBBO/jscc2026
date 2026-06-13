@@ -15,20 +15,25 @@
 - 🌙 no one is remembering if you do more overhours other than your kids; but with our job we can work at night
 - 🧰 use AI agents as much-needed helpers (and multi-task)
 - 💬 helps a lot if colleagues are on board with meeting times – if meetings have to be during baby time, not accepting others being late anymore
+- 🤝 learn to delegate work
+- 🌳 stupid little health work is replaced by playground works (maybe listen to a work podcast)
 
 
 
 **Daily life**
 
 - 🗓️ days were busy before kids, but feels weird *with* having kids: "what did I do back then?"; probably high media consumption) 
+
   👉 days with kids have to be very intentional
+
 - 🤏 everything needs to be very efficient & optimized
   - ...so it only needs minimal effort (home automation; Voice control helpers)
   - 💡 a schedule is good, but stuff will go wrong: have a plan b
 - 🤧 phone paranoia: will the KITA call *again*
 - 🧸 play groups are nice: grown ups to talk to
 - 🧽 optimize household; (outsourcing) cleaning, seal up all cracks (so dust & kids toys can't get lost) 👉 you can search for services at e.g. '[Helpling](https://www.helpling.de/)'
-- 🤝 divide work areas (clothes, cooking (apps like [sidekick](https://www.sortedfood.com/blog-category/sidekick-recipes) or [hellofresh](https://www.hellofresh.de/)), ...)
+- 🔀 divide work areas (clothes, cooking (apps like [sidekick](https://www.sortedfood.com/blog-category/sidekick-recipes) or [hellofresh](https://www.hellofresh.de/)), ...)
+- 🎧 neat little hack: bone conducting (or similar) headphones
 
 
 
